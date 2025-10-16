@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @richardsounouvouyii
+- 👋 Hi, I’m @richardsounouvou
 - 👀 I’m interested in le travail 
 - 🌱 I’m currently learning boostrap 
 - 💞️ I’m looking to collaborate on pour vraiment m'aider 
